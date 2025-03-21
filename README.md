@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chizydon
-- 👀 I’m interested in I’m interested in Javascript, Python and Cybersecurity. however, I'm always open to any challenges and ideas that will me get focus on the tech world positively.
+- 👀 I’m interested in Javascript, Python and Cybersecurity. however, I'm always open to any challenges and ideas that will get me get focus on the tech world positively.
 - 🌱 I’m currently a cybersecurity analyst/open source developer
-- 💞️ I’m looking to collaborate on any profitable and tremendous project that will help me to improve and showcase my skills.
+- 💞️ I’m looking to collaborate on any profitable and tremendous project that will help me to improve and showcase my skills pssitively and worl wide.
 - 📫 You can always contact me @CHYDYSIT I'm looking forward to engage and communicate with y'all soonest.
